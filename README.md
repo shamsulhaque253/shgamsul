@@ -1,2 +1,2 @@
-# shgamsul
+# shamsul
 I'm shamsul haque from Dhaka, Bangladesh. I'm Graphic Designer image editing service.I have 8+ years job experience. I have a lot of experience, Background Removal, Color Correction service is the process of changing the color . Many times certain colors of objects in an image such as clothes or accessories have to be changed to different colors, moderated for color correction, or recolored to restore balance.Photo Editing, Photo Manipulation, Photo Retouching, White Background, Transparent, Clipping Path, Multi-Path, Color Separation, Hair Masking, Soft Mask, Shadow Making, Neck Joint, T-Shirt Neck Joint. etc
